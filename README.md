@@ -1,0 +1,1 @@
+# Akyurt-Mahalle-SVG-Map
